@@ -1,23 +1,23 @@
 Javier Xadro was born on 8th August 1982, Madrid, Spain
 
-He is IT Engineering in ICAI
+Javier Xadro is IT Engineering in ICAI
 
-Has two sons, Manuel and Alejandra.
+Javier Xadro has two sons, Manuel and Alejandra.
 
-Married on 2024 with Cecilia
+Javier Xadro married on 2024 with Cecilia
 
 
 
 Manuel Xadro was born on 18th Nov 2016, Madrid, Spain
 
-Is currently studying in Colegio Agustiniano.
+Manuel Xadro Is currently studying in Colegio Agustiniano.
 
-He likes a lot Basketball, paddel, Pokemon and TV
+Manuel Xadro likes a lot Basketball, paddel, Pokemon and TV
 
 
 
 Alejandra Xadro was born on 29th December 2018, Madrid Spain.
 
-Is currently studying in Colegio Agustiniano.
+Alejandra Xadro is currently studying in Colegio Agustiniano.
 
-She likes a lot to sing and dance and play with her friends.
+Alejandra Xadro likes a lot to sing and dance and play with her friends.
